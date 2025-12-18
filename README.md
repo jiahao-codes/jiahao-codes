@@ -7,7 +7,7 @@
   
 ### 🏆 Honors & Awards
 
-- 🥇 **Meritorious Winner**, CMC Mathematics Competition (Science and Engineering Group A, Beijing)
+- 🥇 **Meritorious Winner**, CMC Mathematics Competition (Science and Engineering Group A, Beijing).
 - 🥉 **Bronze Medalist**, Capital University Athletics Meet 5000m (Group B).
 
 ### 🏠 Hometown
